@@ -1,2 +1,2 @@
 # DNet.github.io
- https://deeepakchattwani.github.io/DNet.github.io/
+https://deep-69bits.github.io/DNet.github.io/
